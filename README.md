@@ -1,0 +1,1 @@
+O curso está sendo bastante desafiador, prazos curtos e muito conteúdo, mas ao mesmo tempo muito instigante, aulas muito boas. Gosto muito de aprender coisas novas, estou adorando. 
